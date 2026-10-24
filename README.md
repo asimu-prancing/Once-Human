@@ -220,4 +220,4 @@ Once Human is available as a full free version, providing players with access to
 Don't miss out on the adventure! Download Once Human for free today and step into a world where survival is the ultimate challenge!
 
 ---
-**Last updated:** 2026-10-23 21:01:24 UTC
+**Last updated:** 2026-10-24 00:16:10 UTC
